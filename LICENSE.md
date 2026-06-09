@@ -1,4 +1,4 @@
-
+enter brainrot heads Script updated is the best enter brainrot heads Script, featuring auto-farm and fly. Safe and powerful for all your needs.
 
 
 
